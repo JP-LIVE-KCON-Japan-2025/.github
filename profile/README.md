@@ -1,6 +1,14 @@
 デビュー2周年を迎えたDXTEENが 『KCON JAPAN 2025』で新曲「Tick-Tack」パフォーマンス！ SEVENTEEN「Pretty U」カバーに大歓声！ ＜オフィシャルライブレポート＞
 5月9日(金)-10日(土)、グローバルボーイズグループDXTEENが、千葉・幕張メッセで開催された『KCONJAPAN 2025』に出演した。
 
+
+[ライブ TV📺🔴👉 https://worldsportshd.com/jp-festival/](https://worldsportshd.com/jp-festival/)
+
+[ライブ TV📺🔴👉 https://worldsportshd.com/jp-festival/](https://worldsportshd.com/jp-festival/)
+
+[ライブ TV📺🔴👉 https://worldsportshd.com/jp-festival/](https://worldsportshd.com/jp-festival/)
+
+
 DXTEENは、5月9日(金)にX STAGEに登場し、SEVENTEENの「Pretty U」をカバー。この曲はSEVENTEENが音楽番組で初めて1位を獲得し、現在の絶大な人気を築くきっかけになった代表曲の一つ。
 
 DXTEENは原曲へのリスペクトを込めて、ステージにソファを設置し、制服衣装でパフォーマンスを披露した。キャッチーなメロディとワクワクするような爽やかな曲調はDXTEENのグループコンセプトにもぴったりで、思わぬ選曲に観客からは大きな歓声が上がった。
